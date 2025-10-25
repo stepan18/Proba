@@ -1,1 +1,1 @@
-# pliase, close you mouse
+# Паша сосал мой хуй
